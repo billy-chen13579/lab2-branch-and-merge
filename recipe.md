@@ -12,7 +12,9 @@
 ## Instructions:
 1. Preheat the oven to 350°F (175°C).
 2. In a large bowl, whisk together the flour, sugar, cocoa powder, chocolate chips, and vanilla extract.
-3. ...
+3. Put in oven
+4. Wait for 20 minutes
+5. Complete!!!
 
 ## Additional Directions by Alice:
 4. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
